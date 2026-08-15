@@ -5,7 +5,7 @@
 # ‧˚꒰🐾୭ ˚. ᵎᵎ + 【﻿ＡＳＰＥＮ　＋　ＣＯＤ　＋　ＰＡＲＲＯＴＸ２】 +
 
 ## ⋮ ⌗ ┆ <img width="40" height="30" alt="image" src="https://github.com/user-attachments/assets/d3a80f2e-ba49-419e-ac0d-3c0a7ce69c0f" /> + <img width="40" height="30" alt="image" src="https://github.com/user-attachments/assets/c4e2790d-44b4-49fc-9ec0-b010308cff10" /> ;; He/They pronouns only!
-> First flag is Unlabeled flag, but a redesign of it! ; Second flag is beyondcomprehendic! Definition of it is "a gender that is beyond comprehension of others or the user themselves. this may stem from the user still undergoing identity questioning/discovery or is unable to understand themselves/their own gender."
+> ## First flag is Unlabeled flag, but a redesign of it! ; Second flag is beyondcomprehendic! Definition of it is "a gender that is beyond comprehension of others or the user themselves. this may stem from the user still undergoing identity questioning/discovery or is unable to understand themselves/their own gender."
 
 # ˚˖𓍢ִ໋🦢˚ BYI ; 
 > ## I have severe anxiety and paranoia, especially socially, so I will most likely not talk much, but if you compliment me, I will reply back! I appreciate compliments greatly, aswell as cuddling and hiding! I also mostly am AFK or with my friend(s), so I will mostly be talking to them or cuddling with them.
